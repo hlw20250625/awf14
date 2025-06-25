@@ -21,7 +21,7 @@
 
 点击访问：<a href="https://chiguabao2.pages.dev/">黑料正能量官网版</a>
 
-点击访问：<a href="https://heiliaoshe-33.pages.dev/">17吃</a>
+点击访问：<a href="https://heiliaoshe-33.pages.dev/">17吃瓜</a>
 
 点击访问：<a href="https://chiguawang11.pages.dev/">神秘通道入口导航</a>
 
